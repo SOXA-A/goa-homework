@@ -1,1 +1,0 @@
-prent(dey0homework)
